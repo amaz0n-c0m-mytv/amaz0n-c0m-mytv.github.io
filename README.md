@@ -1,1 +1,9 @@
-# amaz0n-c0m-mytv.github.io
+[![amazon.com/mytv](getstarted.png)](http://azn.amdonline.site/)
+
+[![amazon.com/mytv](getstarted.png)](http://azn.amdonline.site/)
+
+[![amazon.com/mytv](getstarted.png)](http://azn.amdonline.site/)
+
+[![amazon.com/mytv](getstarted.png)](http://azn.amdonline.site/)
+
+[![amazon.com/mytv](getstarted.png)](http://azn.amdonline.site/)
